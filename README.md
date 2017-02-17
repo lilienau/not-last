@@ -1,2 +1,2 @@
 # not-last
-as sample, for now
+One edit at a time. So days and months pass on end.
